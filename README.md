@@ -1,2 +1,2 @@
 # MyRepo
-Ezte zoy yo y mi polla tieza
+Ezte zoy yo y mi polla lazia
